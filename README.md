@@ -1,4 +1,3 @@
-# BISC-Std--VII-Boys-group-s-old-description
 Divided by Race, United by Racism
 
 Whoever except Saif, Tawseef, Rownak & Tameem changes the description, group pfp, or group name will lose their rights in this group and will become the same as Junayed Alam.
