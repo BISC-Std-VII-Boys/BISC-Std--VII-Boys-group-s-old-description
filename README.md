@@ -14,4 +14,6 @@ Adil (if he breaks any more freaking rules, he will be sent straight to the shad
 We broke our most messages record!!! 12,372 in under one hour!!
 Notice: Must attend the event on September 11
 More info:
+
+
 https://bisc-std-vii-boys.github.io/Main-group-description-details/ 
