@@ -19,3 +19,6 @@ More info:
 
 
 https://bisc-std-vii-boys.github.io/Main-group-description-details/ 
+
+side note (This part wasn't in the description originally):
+The link's (or URL's) operational capabilities are being worked on in the website, to see the what's in the link (or url) paste it in the search bar of a web browser and  and the most messages record still holds
