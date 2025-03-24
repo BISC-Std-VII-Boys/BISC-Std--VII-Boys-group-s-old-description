@@ -1,3 +1,5 @@
+BISC Std-VII (Boys):
+
 Divided by Race, United by Racism
 
 Whoever except Saif, Tawseef, Rownak & Tameem changes the description, group pfp, or group name will lose their rights in this group and will become the same as Junayed Alam.
@@ -21,4 +23,48 @@ More info:
 https://bisc-std-vii-boys.github.io/Main-group-description-details/ 
 
 side note (This part wasn't in the description originally):
-The link's (or URL's) operational capabilities are being worked on in the website, to see the what's in the link (or url) paste it in the search bar of a web browser and  and the most messages record still holds
+The link's (or URL's) operational capabilities are being worked on in the website as of march 24th 2025 7:09 pm, to see the what's in the link (or url) paste it in the search bar of a web browser and  and the most messages record still holds
+
+Tres - 4b:
+
+
+Hi!
+Participants
+@Keyboard
+@Mouse
+@Touchscreen
+@Pyramid the sun ( tahmid)
+@saad                       
+@Fees Ur waats ⚡( tawseef)
+@Junayed Alomgir  boka*****
+@Rokib
+@tameem
+
+Main admins: Rownak , Tahmid , Saad , Tameem and tawseef after he turns 13(hasn't turned 13 yet)
+
+Rules
+Töte dich selbst für die Sicherheit anderer
+⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
+⣿⣿⣿⣿⣿⣿⣿⣿⡿⠿⠛⠛⠛⢻⡻⠿⣿⣿⣿⣿⣿⣿⣿⣿ 
+⣿⣿⣿⣿⣿⣿⣟⣫⡾⠛⠛⠛⠛⠛⠛⠿⣾⣽⡻⣿⣿⣿⣿⣿ 
+⣿⣿⣿⣿⣿⡟⣼⠏⠄⠄⠄⠄⠄⠄⣀⣀⡀⣙⣿⣎⢿⣿⣿⣿
+⣿⣿⣿⣿⣿⢹⡟⠄⠄⠄⣰⡾⠟⠛⠛⠛⠛⠛⠛⠿⣮⡻⣿⣿ 
+⣿⡿⢟⣻⣟⣽⠇⠄⠄⠄⣿⠄⠄⠄⠄⠄⠄⠄⠄⠄⠈⢿⡹⣿ 
+⡟⣼⡟⠉⠉⣿⠄⠄⠄⠄⢿⡄⠄⠄⠄⠄⠄⠄⠄⠄⠄⣼⢟⣿ 
+⣇⣿⠁⠄⠄⣿⠄⠄⠄⠄⠘⢿⣦⣄⣀⣀⣀⣀⣤⡴⣾⣏⣾⣿ 
+⡇⣿⠄⠄⠄⣿⠄⠄⠄⠄⠄⠄⠈⠉⠛⠋⠉⠉⠄⠄⢻⣿⣿⣿ 
+⢃⣿⠄⠄⠄⣿⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⢸⣧⣿⣿ 
+⡻⣿⠄⠄⠄⣿⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⣸⣧⣿⣿ 
+⡇⣿⠄⠄⠄⣿⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⣿⢹⣿⣿ 
+⣿⡸⢷⣤⣤⣿⡀⠄⠄⠄⠄⢠⣤⣄⣀⣀⣀⠄⠄⢠⣿⣿⣿⣿ 
+⣿⣿⣷⣿⣷⣿⡇⠄⠄⠄⠄⢸⡏⡍⣿⡏⠄⠄⠄⢸⡏⣿⣿⣿ 
+⣿⣿⣿⣿⣿⢼⡇⠄⠄⠄⠄⣸⡇⣷⣻⣆⣀⣀⣀⣼⣻⣿⣿⣿ 
+⣿⣿⣿⣿⣿⣜⠿⢦⣤⣤⡾⢟⣰⣿⣷⣭⣯⣭⣯⣥⣿⣿⣿⣿
+⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
+
+Everyone should be treated equally except alom and raiyan (cuz both have no rights)
+
+If anyone starts any beef or fighting with admins or fights in general or brainrots catastrophically they will be treated equally as alom.
+Nobody has the right to change the description pfp or name of this group without the permission of the main admins or they would be treated equally as Alam . Other than that everybody except alam and raiyan is However, if any fight/tension breaks down here then the members responsible for that will be removed from this group temporarily until they have resolved the problem and will be transferred to the sub group. The people currently in the main admins' watchlist: If Adil breaks any rules again he will get sent into the shadow realm 
+
+Only male
